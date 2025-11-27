@@ -7,4 +7,7 @@ Carlos Andrés Zuluaga Amaya - 1036250651 - Ingeniería de Sistemas
 
 Camilo Alexander Aristizábal Castaño - 1036931382 - Ingeniería de Sistemas
 
-https://youtu.be/QyM7p0YVKXw
+Link Entrega 1: https://youtu.be/QyM7p0YVKXw
+
+Link Entrega Final: https://youtu.be/jA22FVmLB0U
+
